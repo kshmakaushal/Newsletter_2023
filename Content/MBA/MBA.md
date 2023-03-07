@@ -12,7 +12,7 @@ The Department of Business Administration has experienced and competent faculty 
 
 ## Department at Glimpse
 
-- **AICTE Sponsored under(AQIS) Scheme Two Weeks FDP on "Innovative Pedagogical Methodologies and Tools for Effective Learning in Engineering Education from 26th October to 7th November,2020 through online mode.”**
+- **IQAC sponsored ONE WEEK Staff Development Program on "......................2020.”**
 
 ![SDT](Images/FDP1.jpeg)
 ***Organising Team -AICTE Sponsored Ist FDP***
